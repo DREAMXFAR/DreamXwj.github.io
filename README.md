@@ -1,2 +1,2 @@
 # DreamXwj.github.io
-Blog to Reocrd
+Blogs to Reocrd
